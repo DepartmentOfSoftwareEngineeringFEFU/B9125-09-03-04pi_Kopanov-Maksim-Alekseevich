@@ -1,4 +1,4 @@
-**Kopanov Maksim Alerseevich**
+**Kopanov Maksim Alekseevich**
 ---
 Дальневосточный Федеральный Университет — Программная Инженерия
 ---
